@@ -1,4 +1,4 @@
-# Hi there, I'm Yumut812 👋
+# Hi there, I'm Umut 👋
 
 🖥️ **Math Student | Aspiring Programmer | Videogame Lover**
 
